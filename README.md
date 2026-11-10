@@ -1,0 +1,1 @@
+# As-7-leis-espirituais-gpt.
